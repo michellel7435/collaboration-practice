@@ -6,7 +6,7 @@
 #### 6
 #### 7 February
 #### 8
-#### 9 Github is awesome.
+#### 9 Github is really awesome
 #### 10
 #### 11
 #### 12
